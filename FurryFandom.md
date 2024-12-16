@@ -1,6 +1,9 @@
 # NOTE
 This is **NOT** a perfect answer, I am basing this off of my experiences in the fandom and what I know about the community. 
 
+## Video
+LittleAlphaPup on YouTube made a video that may help explain the furry fandom: https://youtu.be/sB9e16YaR1Q?si=w0rfDGCKTd-Ec6uB
+
 ### What Is A Furry?
 A furry is someone who enjoys anthropomorphic animals—characters that are animals with human-like traits such as walking on two legs, talking, and expressing emotions. This is often a creative hobby rather than an identity for most, though it may become a significant part of someone's life. Furries often create fursonas, which are personal animal characters they use to express themselves, similar to cosplaying.
 
